@@ -9,7 +9,7 @@
 
 - 🤝 I’m Looking For Help With **Growing My Network**
 
-- 👨‍💻 All Of My Projects Are Available [My LinkedIn Profile](My LinkedIn Profile)
+- 👨‍💻 All Of My Projects Are Available On [My LinkedIn Profile](https://www.linkedin.com/in/mtawfeeq)
 
 - 📝 I Regularly Write Articles On [LinkedIn](https://www.linkedin.com/in/mtawfeeq)
 
