@@ -11,7 +11,7 @@
 
 - 👨‍💻 All Of My Projects Are Available [My LinkedIn Profile](My LinkedIn Profile)
 
-- 📝 I Regularly Write Articles On [LinkedIn]([LinkedIn](https://www.linkedin.com/in/mtawfeeq/))
+- 📝 I Regularly Write Articles On [LinkedIn](https://www.linkedin.com/in/mtawfeeq)
 
 - 💬 Ask Me About **Cyber Security & Forensics**
 
