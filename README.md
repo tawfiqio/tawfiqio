@@ -17,7 +17,7 @@
 
 - 📫 Connect With Me **Visit My LinkedIn Profile**
 
-- 📄 Know More About Me [Visit My LinkedIn Profile](Visit My LinkedIn Profile)
+- 📄 Know More About Me [https://www.linkedin.com/in/mtawfeeq](Visit My LinkedIn Profile)
 
 - ⚡ Fun fact **Trekked Mount Everest ⛰️**
 
