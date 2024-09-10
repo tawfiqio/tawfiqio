@@ -11,13 +11,13 @@
 
 - 👨‍💻 All Of My Projects Are Available [My LinkedIn Profile](My LinkedIn Profile)
 
-- 📝 I Regularly Write Articles On [LinkedIn](LinkedIn)
+- 📝 I Regularly Write Articles On [LinkedIn]([LinkedIn](https://www.linkedin.com/in/mtawfeeq/))
 
 - 💬 Ask Me About **Cyber Security & Forensics**
 
-- 📫 Connect With Me **Visit My LinkedIn Profile**
+- 📫 Connect With Me [Visit My LinkedIn Profile](https://www.linkedin.com/in/mtawfeeq)
 
-- 📄 Know More About Me [https://www.linkedin.com/in/mtawfeeq](Visit My LinkedIn Profile)
+- 📄 Know More About Me [Visit My LinkedIn Profile](https://www.linkedin.com/in/mtawfeeq/)
 
 - ⚡ Fun fact **Trekked Mount Everest ⛰️**
 
